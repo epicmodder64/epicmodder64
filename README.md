@@ -1,0 +1,5 @@
+- im epicmodder64 a github account maade by COOLNOOB™
+- im gonna be uploading mods for video games i own
+- minecraft mods, roblox faces and more
+- i code on a windows 11 home and draw on a old ipad
+- subscribe to coolnoob™
